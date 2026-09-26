@@ -1,1 +1,0 @@
-# delneveshte.shohada.io
